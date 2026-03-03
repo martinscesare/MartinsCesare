@@ -1,14 +1,14 @@
 ## Hi there 👋 This is Cesare
 
 - ⚡ Founder & Researcher: Abelar Africa, Abelar Progress<br/>
-- 🔭 I’m currently working on (progress.abelar.org) and Slessor Labs<br/>
+- 🔭 I’m currently working on (prelauch.abelar.org) and 2 Lab<br/>
 - 🌱 I write on martinscesare.medium.com & cesare.martins.substack.com/<br/>
 - 👯 I’m looking to collaborate on Progress Studies, AI x Benefit Sharing, Aid & Trade, Special Jusridiction<br/>
 - 💬 Ask me about Science, Tech & Economic Progress + Global development + Free jurisdictions<br/>
 - 📫 How to reach me: x.com/martinscesare<br/>
 
 # 💫 About Me:
-I research free jurisdictions and progress studies & systems.  I'm a lateral thinker of remodelling progress with interests including Coefficent aid & Impact fund, AI Benefit sharing,  Science, Tech, and Economic Progress  in 🌍
+I research free jurisdictions and progress studies & systems.  I'm a lateral thinker, remodelling progress with interests including Coefficent aid & Impact fund, AI Benefit sharing, Science, Tech, and Economic Progress  in 🌍
 
 
 ## 🌐 Socials:
