@@ -2,7 +2,7 @@
 
 - ⚡ Founder & Researcher: Abelar Africa, Abelar Progress<br/>
 - 🔭 I’m currently working on (progress.abelar.org) and Slessor Labs<br/>
-- 🌱 I write on martinscesare.medium.com & cesare.martins,substack.com/<br/>
+- 🌱 I write on martinscesare.medium.com & cesare.martins.substack.com/<br/>
 - 👯 I’m looking to collaborate on Progress Studies, AI x Benefit Sharing, Aid & Trade, Special Jusridiction<br/>
 - 💬 Ask me about Science, Tech & Economic Progress + Global development + Free jurisdictions<br/>
 - 📫 How to reach me: x.com/martinscesare<br/>
